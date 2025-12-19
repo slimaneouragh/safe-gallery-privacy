@@ -17,4 +17,4 @@ Permissions:
 Contact:
 If you have any questions about this Privacy Policy,
 you can contact us at:
-your slimaneouragh38@gmail.com
+slimaneouragh38@gmail.com
